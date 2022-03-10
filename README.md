@@ -15,6 +15,8 @@ https://www.embo.org/solidarity-with-ukraine/
 
 https://www.lunduniversity.lu.se/vacancies
 
+https://scienceforukraine.eu/
+
 Lund University and many other Swedish Universities are part of Scholars at Risk (https://www.scholarsatrisk.org/) which provides support for relocating researchers. The Lund university page about this is here: https://www.staff.lu.se/research-and-education/international-opportunities-and-partnerships/international-collaborations/scholars-risk and you apply for help here: https://www.scholarsatrisk.org/get-help/
 
 
