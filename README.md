@@ -7,7 +7,7 @@ Our group uses AI mainly to study cell death, lysosomes, environmental toxins an
 The immigration authorities info page with all rules about residence permits can be found here: https://www.migrationsverket.se/English/About-the-Migration-Agency/The-situation-in-Ukraine.html. In brief, the rules are that Ukrainians can stay in Sweden for 90 days without visa and can immediately get a temporary residence permit under the EU’s Temporary Protection Directive. Immediately upon application to the residence permit, you can get help with food and accommodation, if you have an urgent need for it. Once you have received your permit you will, in addition to food and housing, have the right to work, the right to seek basic care, the right to schooling for children, and certain financial support in Sweden.
 
 ## researchers/PhD students/Postdocs
-Other Swedish research groups able to host students and researchers can be found here:
+Swedish research groups able to host students and researchers can be found here:
 
 https://docs.google.com/spreadsheets/d/1HqTKukfJGpmowQnSh4CoFn3T6HXcNS1T1pK-Xx9CknQ/edit#gid=320641758
 
