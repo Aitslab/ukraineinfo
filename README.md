@@ -13,7 +13,7 @@ https://www.embo.org/solidarity-with-ukraine/
 
 Lund University and many other Swedish Universities are part of Scholars at Risk (https://www.scholarsatrisk.org/) which provides support for relocating researchers. The Lund university page about this is here: https://www.staff.lu.se/research-and-education/international-opportunities-and-partnerships/international-collaborations/scholars-risk and you apply for help here: https://www.scholarsatrisk.org/get-help/
 
-Cara also supports researchers who need to relocate: https://www.cara.ngo/
+
 
 
 ## studying
@@ -28,3 +28,5 @@ Info on scholarships and support worldwide: https://www.scholarsatrisk.org/wp-co
 
 # Relocation to other countries
 The research host lists above also contain international research groups and https://www.scholarsatrisk.org/ and the organizations listed in https://www.scholarsatrisk.org/wp-content/uploads/2016/04/Student-Assistance-Information.pdf can also provide help.
+
+Cara also supports researchers who want to relocate to UK: https://www.cara.ngo/
