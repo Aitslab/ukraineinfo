@@ -19,16 +19,20 @@ https://scienceforukraine.eu/
 
 Lund University and many other Swedish Universities are part of Scholars at Risk (https://www.scholarsatrisk.org/) which provides support for relocating researchers. The Lund university page about this is here: https://www.staff.lu.se/research-and-education/international-opportunities-and-partnerships/international-collaborations/scholars-risk and you apply for help here: https://www.scholarsatrisk.org/get-help/
 
+There are also scholarships specifically set up: https://strategiska.se/en/ssf-supports-ukrainian-researchers-with-30-million-sek/
 
 
 
 ## undergraduate students
-Applications to courses and programs at all Swedish universities, for national and international students, are normally handled via https://www.universityadmissions.se/intl/start. Recognition of prior studies is possible. It is still unclear whether the application fee (900 kr per person, not per application) and study fees can be waived but a number of scholarships are available to all international students.
+Applications to courses and programs at all Swedish universities, for national and international students, are normally handled via https://www.universityadmissions.se/intl/start. Recognition of prior studies is possible. It is still unclear whether the application fee (900 kr per person, not per application) and study fees can be waived but a number of scholarships are available to all international students. If anything is decided about Ukrainian students specifically information about it should become available at these web pages: https://www.uhr.se/en/start/ and https://www.government.se/
 
 General info about the process of applying to Swedish universities and available scholarships can also be found on this official page: https://studyinsweden.se/
 
 Info on scholarships and support worldwide: https://www.scholarsatrisk.org/wp-content/uploads/2016/04/Student-Assistance-Information.pdf
 
+Lund University information:
+- web page with info
+- for relocation questions at the Faculty of Medicine, Carina Bäckström is responsible.
 
 
 
