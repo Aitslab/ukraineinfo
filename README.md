@@ -42,3 +42,7 @@ Lund University information:
 The research host lists above also contain international research groups and https://www.scholarsatrisk.org/ and the organizations listed in https://www.scholarsatrisk.org/wp-content/uploads/2016/04/Student-Assistance-Information.pdf can also provide help.
 
 Cara also supports researchers who want to relocate to UK: https://www.cara.ngo/
+
+# Petition about remote work
+
+https://www.change.org/p/universities-open-remote-positions-for-ukrainian-refugee-scholars?recruiter=false&utm_source=share_petition&utm_medium=facebook&utm_campaign=psf_combo_share_initial&recruited_by_id=6d3176e0-a00d-11ec-a809-211e4101eed6&share_bandit_exp=initial-32580570-en-US&utm_content=fht-32580570-en-us%3A6
