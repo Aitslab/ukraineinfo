@@ -31,7 +31,7 @@ General info about the process of applying to Swedish universities and available
 Info on scholarships and support worldwide: https://www.scholarsatrisk.org/wp-content/uploads/2016/04/Student-Assistance-Information.pdf
 
 Lund University information:
-- web page with info
+- web page with info: https://www.lunduniversity.lu.se/about-university/regarding-war-ukraine
 - for relocation questions at the Faculty of Medicine, Carina Bäckström is responsible.
 
 
