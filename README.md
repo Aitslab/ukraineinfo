@@ -19,7 +19,10 @@ https://scienceforukraine.eu/
 
 Lund University and many other Swedish Universities are part of Scholars at Risk (https://www.scholarsatrisk.org/) which provides support for relocating researchers. The Lund university page about this is here: https://www.staff.lu.se/research-and-education/international-opportunities-and-partnerships/international-collaborations/scholars-risk and you apply for help here: https://www.scholarsatrisk.org/get-help/
 
-There are also scholarships specifically set up: https://strategiska.se/en/ssf-supports-ukrainian-researchers-with-30-million-sek/ and https://www.kva.se/sv/utlysningar/stipendier-bidrag/for-ukrainska-forskare-att-verka-i-sverige
+## grants/scholarships
+https://strategiska.se/en/ssf-supports-ukrainian-researchers-with-30-million-sek/ (onsite only, STEM subjects)
+https://www.kva.se/sv/utlysningar/stipendier-bidrag/for-ukrainska-forskare-att-verka-i-sverige
+https://www.kks.se/
 
 MISTRA will likely grant more funding for helping researchers to join MISTRA programs (info from Lennart Gisselsson at Lund University).
 
