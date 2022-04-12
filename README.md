@@ -21,9 +21,13 @@ Lund University and many other Swedish Universities are part of Scholars at Risk
 
 ## grants/scholarships
 https://www.staff.lu.se/funding-opportunities-ukrainian-researchers
+
 https://www.vr.se/english/just-now/support-for-researchers-from-ukraine.html
+
 https://strategiska.se/en/ssf-supports-ukrainian-researchers-with-30-million-sek/ (onsite only, STEM subjects)
+
 https://www.kva.se/sv/utlysningar/stipendier-bidrag/for-ukrainska-forskare-att-verka-i-sverige
+
 https://www.kks.se/
 
 MISTRA will likely grant more funding for helping researchers to join MISTRA programs (info from Lennart Gisselsson at Lund University).
